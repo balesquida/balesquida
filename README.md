@@ -8,6 +8,6 @@
   
   I have now redirected my career towards the **creation of _digital content_ and _web development_** to provide a broader experience.
 
-  I am eager to discover new paths and to continue learning and undertaking new projects.
+  Willing to discover new paths and to continue learning.
 
-
+  Eager to embark on new paths
