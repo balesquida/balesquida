@@ -1,4 +1,4 @@
-### Hi Word! 👋
+### Hi Word!  It's me: Balesquida 👋
 
   I am passionate about **communication**. 
   Specialised in the creation of content related with culture and institutional communication at the media as well as social media and web. 
