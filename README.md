@@ -10,4 +10,4 @@ I have now redirected my career towards the **creation of _digital content_ and 
 
 Willing to discover new paths and to continue learning.
 
-Eager to embark on new paths
+Eager to embark on new paths.
