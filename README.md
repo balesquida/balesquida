@@ -1,4 +1,4 @@
-### Hi Word!  It's me: Balesquida 👋
+### Hi World!  It's me: Balesquida 👋
 
   I am passionate about **communication** and **accessibility**. 
   
